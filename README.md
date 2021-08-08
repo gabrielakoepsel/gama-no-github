@@ -1,0 +1,1 @@
+Até o momento tenho adorado o curso, tem sido explicado bem passo-a-passo, contudo gostaria de ter acesso aos slides utilizados também.
